@@ -1,0 +1,1 @@
+//Nueva javascrip en DeGHaLocal y Vice
